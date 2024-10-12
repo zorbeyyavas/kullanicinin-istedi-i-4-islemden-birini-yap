@@ -1,0 +1,1 @@
+# kullanicinin-istedi-i-4-islemden-birini-yap
